@@ -71,7 +71,6 @@
 - 해장할거 (밀키트?)
 
 **Day 2 저녁**
-- [뒷덜미살 1kg](https://m.smartstore.naver.com/goods_goodmeat/products/5009127651?NaPm=ct%3Dlkgc4b7v%7Cci%3Dcheckout%7Ctr%3Dppc%7Ctrx%3Dnull%7Chk%3Dd3ca3b63680c8669acb383f6aea50c1f8aa0cbf0)
 
 1차
 - 소고기 은근슬쩍
@@ -79,6 +78,7 @@
 
 2차
 - 새로 진로 테라
+- [뒷덜미살 1kg](https://m.smartstore.naver.com/goods_goodmeat/products/5009127651?NaPm=ct%3Dlkgc4b7v%7Cci%3Dcheckout%7Ctr%3Dppc%7Ctrx%3Dnull%7Chk%3Dd3ca3b63680c8669acb383f6aea50c1f8aa0cbf0)
 - 삼겹살 (미나리, 김치 필수)
 - 볶음밥 (햇반)
 
